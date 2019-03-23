@@ -1,0 +1,2 @@
+# Pamela-Cox
+Virginia Window Cleaners, Inc is 100% woman-owned and family operated since 1963. Pamela Cox has been working in the business since 1994 alongside her father until his passing in 2005. It is a SWaM certified business with the Commonwealth of Virginia. We hire only full-time experienced window cleaners, no seasonal or pick-up help. The primary services we offer are residential and commercial window/hi-rise cleaning services, gutters/downspouts and power washing. We have offices located in Mclean and Richmond, VA.
